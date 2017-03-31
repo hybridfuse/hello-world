@@ -1,2 +1,2 @@
 # hello-world
-testing
+The future is beyond mankind and intelligence has no preference.
